@@ -1,0 +1,1 @@
+# Basit-word-uygulamas-
